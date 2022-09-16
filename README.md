@@ -1,5 +1,5 @@
 ### Olá ! Eu sou a Vivian Silva 
 
-- 🔭 Eu trabalho com Tecnico de TI
+- 🔭 Eu trabalho como Analista de sucesso do cliente
 - 🌱 Estou estudando Front End
 - 😄 Pronomes: Ela/Dela
